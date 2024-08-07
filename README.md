@@ -1,6 +1,6 @@
 ### Bem Vindo ao meu Perfil🖤
 
-Meu nome é **Mikaellen Silva**
+Meu nome é **Mykaellen Silva**
 
 ° Estou estudando na [Alura](https://www.alura.com.br)
 
